@@ -30,4 +30,4 @@
 
 Задание 2.2: https://www.youtube.com/watch?v=w4SJlxwCJyc
 
-Задание 2.3: Приложил скриншот.
+Задание 2.3: https://cdn1.coreapp.ai/uploads/any/2.3-16845111354346066926467999f4dff7.png
